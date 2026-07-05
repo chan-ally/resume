@@ -2,7 +2,7 @@
 
 ### Contact Information
 
-253 River Ridge Blvd
+Address: 253 River Ridge Blvd
 Aurora, ON, L4G0G4
 
 allison.chan.email@gmail.com
