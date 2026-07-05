@@ -11,6 +11,7 @@ Email address: allison.chan.email@gmail.com
 
 St. Theresa of Lisieux Catholic High School
 - 2026 to 2030
+- AP Program
 
 St. Charles Garnier Catholic Elementary School
 - 2021 to 2025
