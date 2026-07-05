@@ -39,6 +39,8 @@ St. Charles Garnier Catholic Elementary School
   - Mandarin
 ### Extra-curriculars
 - Competitive swimming
+  - Competed at Ontario Swimming Championships in July 2025
+  - Competed at many other provincial meets
   - Discipline
 - Piano
 - Chinese school
